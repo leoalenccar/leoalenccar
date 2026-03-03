@@ -1,4 +1,4 @@
-## Olá! Eu sou Leonardo ✨
+## Olá! Meu nome é Leonardo ✨
 
  🎓 Formado em Técnico em Administração pelo IFRN  
  💻 Estudante de Tecnologia da Informação na UFRN
